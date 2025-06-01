@@ -1,6 +1,3 @@
-Great choice, Aditya! 🎨 Learning **color theory** is a key skill for a UI/UX designer—it helps you create **visually appealing**, **readable**, and **emotionally effective** designs.
-
-Let’s start from absolute beginner level. I’ll guide you step by step:
 
 ---
 
